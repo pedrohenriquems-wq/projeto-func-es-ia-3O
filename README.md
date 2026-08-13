@@ -1,1 +1,1 @@
-# projeto-func-es-ia-3O
+# projeto-funcoes-ia-3O
